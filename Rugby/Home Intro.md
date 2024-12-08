@@ -1,15 +1,13 @@
 # Home Intro
 ###### WhatsApp
-Hi xxxxxxx
+Hi xxxxx
 
-I'm one of the coaches for Wirral U10s and I think you're heading to ours next.
-I've put the fixture out, and usually we have 18 to 22, enough for two teams and a few subs.
+I hope all is well with you & everyone at xxxx. I'm one of the coaches for Wirral U10s and I wanted to drop you a quick note as I think you're heading to ours next Sunday.
 
-Can you let me know how many kids you'll be bringing by Wednesday, so I can get their meals booked, please?
+I've put the fixture out in Spond with a 10am KO and in terms of numbers, we usually we have 18 to 22, enough for two teams and a few subs. The 10am KO is only provisional until pitch allocations are sorted later in the week, but thats the time we usually try to grab and hope that works for you.
 
-We usually aim to kick off at 10:00/10:30 but I'll confirm the specifics when I get the pitch allocations from the club. 
+In terms of where we're at... the kids are fine (when they remember) with rucking and uncontested scrums. Mauls and ripping are slowly coming along but as it’s still new they're not 100% there yet. If you could let me know Weds/Thur the number you expect to have, I can then get their meals booked.
 
-We'll be looking to take it easy on the rucking side of things & go slowly for the kids, taking time on this and scrums as it’s still new and they're not 100% there yet.
+Any questions or in the meantime, just drop me a note. Looking forward to it.
 
-Looking forward to it.
-Chris
+Thanks, Chris
