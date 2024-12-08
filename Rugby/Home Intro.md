@@ -8,6 +8,6 @@ I've put the fixture out in Spond with a 10am KO and in terms of numbers, we usu
 
 In terms of where we're at... the kids are fine (when they remember) with rucking and uncontested scrums. Mauls and ripping are slowly coming along but as it’s still new they're not 100% there yet. If you could let me know Weds/Thur the number you expect to have, I can then get their meals booked.
 
-Any questions or in the meantime, just drop me a note. Looking forward to it.
+In the meantime if you've any questions, just drop me a note. Looking forward to it.
 
 Thanks, Chris
