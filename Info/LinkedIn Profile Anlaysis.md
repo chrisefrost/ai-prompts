@@ -9,7 +9,8 @@ I want to optimise my LinkedIn profile to attract more recruiters or networking 
 ---
 
 ## Export your LinkedIn Data as a PDF and then upload to ChatGPT with the following prompts (Click Me > Settings & Privacy > Data Privacy > Get a Copy of Your Data)
-Check Download data archive and Request Archive
+
 Analyse this data and make a manual cleanup. Let me know if you see any important data and how I can improve my profile in the future.
 
 ---
+
