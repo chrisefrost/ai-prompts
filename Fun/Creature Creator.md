@@ -6,4 +6,4 @@ Take this drawing created by my child and transform it into a photorealistic ima
       
 Make it look like this thing exists in the real world, with realistic textures (skin, fur, metal, etc.) and natural lighting. You can add realistic shadows and an environment or background that fits the feel of the drawing, but don’t change anything about the form or details of what they created. No pencil crayon textures or hand-drawn styles — this must look like a photo or CGI render, but staying true to their imagination.    
     
-Zoom out so the object or creature is a little small and the background has lots going on. Make it exciting and adventurous for a child. You MUST make the picture portrait and you MUST make it 1536 × 3264 pixels in size.
+Zoom out so the object or creature is a little small and the background has lots going on. Make it exciting and adventurous for a child aged 8. You MUST make the picture portrait.
